@@ -1,2 +1,2 @@
-# jyotimphasis
+
 i am jyoti.
